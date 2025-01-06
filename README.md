@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on the coding.
 - 📫 How to reach me apolloniuschen@vip.163.com.
 - 😄 Pronouns: Apollo Chen.
-- ⚡ Fun fact: Combine the experience and code powder to extend the trading and deepen the industry. 
+- ⚡ Fun fact: Combine the experience and knowledge and code powder to increase the yield of reactions.
 
 <!---
 ACECLECHEM/ACECLECHEM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
